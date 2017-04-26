@@ -1,0 +1,1 @@
+# EncryptoTel Whitepaper Portuguese PTBR
